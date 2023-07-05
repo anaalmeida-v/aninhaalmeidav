@@ -2,7 +2,7 @@
 
 ## 🚀About me
 👩‍💻 I am a system development student.
-I am 17 years old
+🤠 I am 17 years old
 
 <!--
 ## 🔗 Links
