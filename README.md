@@ -1,10 +1,8 @@
+# Hello to you! I am Ana. 👋
 
 ## 🚀About me
-
 👩‍💻 I am a system development student.
-
-
-# Hello to you! I am Ana. 👋
+I am 17 years old
 
 
 ## 🔗 Links
