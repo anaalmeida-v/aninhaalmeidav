@@ -1,5 +1,5 @@
 # Hello to you! I am Ana. 👋
-My nickname is Aninha
+My nickname is Aninha😛
 
 ## 🚀About me
 👩‍💻 I am a system development student.
